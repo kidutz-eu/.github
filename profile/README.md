@@ -6,8 +6,8 @@
 
 <p align="center">O identitate clară pentru oamenii din jurul fiecărui copil.</p>
 
-Kidutz brings parents, educators, and kindergarten teams closer through organized information and more space for people.
+Kidutz apropie părinții, educatorii și echipele grădinițelor prin informații organizate și mai mult spațiu pentru oameni.
 
 **Mai mult timp pentru ce contează.**
 
-[Visit kidutz.eu](https://kidutz.eu)
+[Vizitează kidutz.eu](https://kidutz.eu)
